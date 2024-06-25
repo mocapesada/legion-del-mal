@@ -25,3 +25,6 @@
 23. Scarecrow
 24. Añadí a Elon Musk 
 25. Mafe Carrasloca
+24. Añadí a Elon Musk
+25. Doña Anciana
+26. Alvaro Uribe
