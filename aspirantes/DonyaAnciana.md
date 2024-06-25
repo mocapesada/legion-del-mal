@@ -1,4 +1,4 @@
-# Esta viejecita engaña sutilmente
+# Esta viejecita engañada sutilmente. El drama del Alzhéimer
 
 [¿Qué hacer cuando una persona con Alzhéimer nos acusa de haberle robado algo?](https://www.msolucionalasrozas.com/que-hacer-cuando-una-persona-con-alzheimer-nos-acusa-de-haberle-robado-algo-309/)
 Persona con Alzhéimer nos acusa de haberle robadoTratar a una persona con Alzheimer es asunto complejo, a veces espinoso, que requiere de grandes dosis de paciencia, conocimientos, empatía, y a menudo también consejos de terceros. Se trata de una situación difícil en que hemos de ponernos en el lugar del enfermo, pese a que la patología crea con frecuencia diversos problemas para convivir.
