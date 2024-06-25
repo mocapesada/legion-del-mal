@@ -23,4 +23,6 @@
 21. Giganta
 22. Deadshot
 23. Scarecrow
-24. Añadí a Elon Musk 
+24. Añadí a Elon Musk
+25. Doña Anciana
+26. Alvaro Uribe
