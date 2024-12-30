@@ -12,3 +12,4 @@ Este paso implica hacer añadido y actualización del commit
 Debo hacer primero un git add - o un git commit -a "Y el mensaje que quiero añadir."
 
 ## Curso de Fernando en Udemy
+Sigo las instrucciones del video klerith2; en el cual Fernando hace trabajo colaborativo.
